@@ -1,1 +1,0 @@
-# school-number-17
